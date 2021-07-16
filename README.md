@@ -5,4 +5,4 @@ Kamus Bahasa Dayak Kanayatn 2021 by Nelsen Niko
 3. Chrome
 
 Bebas di kembangkan tetapi tidak diperjualbelikan,,
-Info Pengembangan Proyek : 0895387109687
+Info Pengembangan Proyek : 0895387109687 atau https://wa.me/62895387109687
